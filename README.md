@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @paulapelayobanon
-- 👀 I’m interested in languages and music!
+- 👀 I’m interested in (non-programming) languages, music, food, cooking and other stuff I don't want to bore you with!
 - 🌱 I’m currently learning R for my Master's program
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I am a geography addict and can name random facts about countries, regions and cities
